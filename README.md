@@ -4,7 +4,7 @@
 
 Vous souhaitez vendre un véhicule en toute simplicité et sans tracas?
 
-Vous souhaitez un professionnel à vos côtés qui vendra votre voiture au meilleur prix et qui vous fera éviter les pièges de la négociation ?
+Vous souhaitez un professionnel à vos côtés qui vendra votre voiture au meilleur prix et qui vous fera éviter les pièges de la négociation?
 
 Vous essayez de vendre votre véhicule depuis un certain temps mais sans succès?
       
