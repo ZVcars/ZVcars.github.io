@@ -8,7 +8,7 @@ Vous souhaitez un professionnel à vos côtés qui vendra votre voiture au meill
 
 Vous essayez de vendre votre véhicule depuis un certain temps mais sans succès?
       
-Alors faites confiance à ZOOMyVROOMycars le spécialiste de l'occasion! 
+Alors faites confiance à ZOOMyVROOMycars le spécialiste de l'automobile! 
 
 Contactez ZVcars au 0635482028 pour plus d'informations.
 
@@ -28,6 +28,5 @@ Contactez ZVcars au 0635482028 pour plus d'informations.
 
 Facebook page: 
       [ZVcars](https://www.facebook.com/profile.php?id=61562123801136&mibextid=ZbWKwL)
-
 Instagram: 
       [zvcars_official](https://www.instagram.com/zvcars_official?igsh=eWRsYXhmd3Vuazk2)
